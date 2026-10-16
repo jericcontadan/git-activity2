@@ -1,2 +1,2 @@
-# Jeric's version
+# Partner's second version
 
